@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: balomus.github.io/dnd-notes
+  baseUrl: balomus.github.io
   ignorePatterns:
     - private
     - templates
