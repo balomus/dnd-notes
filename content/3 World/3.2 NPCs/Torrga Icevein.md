@@ -1,0 +1,1 @@
+Prime operator of [[Torg's Traveling Merchant Company]]. She also has a bodyguard with her more often than not, [[Sephek Kaltro]].

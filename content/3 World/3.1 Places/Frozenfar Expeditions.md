@@ -1,0 +1,1 @@
+An adventuring outfitter located in [[Caer-Konig]]. They offer dogsleds for adventurers looking to venture further out into the desolate tundra more efficiently.

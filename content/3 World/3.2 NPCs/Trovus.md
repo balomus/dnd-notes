@@ -1,0 +1,1 @@
+The town speaker for [[Caer-Konig]]. [[Trovus]] is often found with a bottle in his hand, and is notorious for passing out after 10 drinks.

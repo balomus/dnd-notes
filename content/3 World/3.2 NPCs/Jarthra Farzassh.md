@@ -1,0 +1,1 @@
+A shield dwarf that acts as an experienced mountain guide at [[Frozenfar Expeditions]] in [[Caer-Konig]].

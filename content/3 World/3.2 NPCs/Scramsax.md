@@ -1,0 +1,1 @@
+Proprietor of [[The Northlook Inn and Tavern]] located in [[Bryn Shander]]. Is incredibly fond of his mythical wall mounted fish, Ol' Bitey.

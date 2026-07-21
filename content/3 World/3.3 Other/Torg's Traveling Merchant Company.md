@@ -1,0 +1,1 @@
+Owned and operated by a shady dwarf, [[Torrga Icevein]], this traveling merchant company is notorious for dealing contraband, performing illegal enchantments, and appears to have a pretty wide reaching criminal underground throughout the [[Ten-Towns]].

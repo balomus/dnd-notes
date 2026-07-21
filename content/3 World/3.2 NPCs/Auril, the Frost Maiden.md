@@ -1,0 +1,3 @@
+Rumored to be the cause of the eternal winter night in [[Icewind Dale]]. As an almost mythical individual, no one the party has run into so far has had any direct contact or interactions with her.
+
+All of the towns in [[Ten-Towns]] have made sacrifices to [[Auril, the Frost Maiden]], in hopes of stopping the wintery plague that haunts them. However, none of the sacrifices appear to have made a difference so far...

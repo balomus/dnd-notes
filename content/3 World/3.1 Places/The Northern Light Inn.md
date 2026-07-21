@@ -1,0 +1,1 @@
+An inn located in [[Caer-Konig]] that is run by the Shorard sisters, 

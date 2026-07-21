@@ -1,0 +1,1 @@
+[[Hruna]] is part of a trio, along with Korux and Storn.
